@@ -76,6 +76,8 @@ Annual billing already saves you up to 25% compared to monthly payments. When yo
 
 This combined discount strategy gives you the best possible value, especially on the Essentials plan where your total savings can reach **50%**!
 
+[![SmartScout Discount Coupon 2](https://res.cloudinary.com/drzqec0oi/image/upload/v1747050422/SmartScout_Discount_Coupon_2_urfx1s.jpg)](https://partners.smartscout.com/?fpr=affinco)
+
 ---
 
 ## How to Apply Your SmartScout BLOGA25 Coupon Code
@@ -165,5 +167,7 @@ Don't miss your chance to save big on one of the most powerful Amazon seller too
 With our exclusive SmartScout coupon code **BLOGA25**, you can save 25% on any plan for your first 3 months. And when combined with annual billing, your total savings can reach up to **50%**! Whether you're just starting out or running a multi-million dollar Amazon operation, this discount makes SmartScout even more valuable.
 
 Just remember to use our partner link and enter the **BLOGA25** promo code at checkout. The savings will be applied instantly, giving you immediate access to all of SmartScout's powerful features at a fraction of the regular price.
+
+[![SmartScout Discount Coupon 4](https://res.cloudinary.com/drzqec0oi/image/upload/v1747050421/SmartScout_Discount_Coupon_4_dpuzyb.jpg)](https://partners.smartscout.com/?fpr=affinco)
 
 [👉 Activate Your SmartScout Discount Here](https://partners.smartscout.com/?fpr=affinco)
