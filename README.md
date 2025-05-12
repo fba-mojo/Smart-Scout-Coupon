@@ -52,6 +52,8 @@ Before we jump into the coupon details, let's look at what SmartScout typically 
 
 All plans come with a 7-day money-back guarantee, so you can try SmartScout risk-free.
 
+[![SmartScout Discount Coupon 3](https://res.cloudinary.com/drzqec0oi/image/upload/v1747050422/SmartScout_Discount_Coupon_3_u28mvp.jpg)](https://partners.smartscout.com/?fpr=affinco)
+
 ---
 
 ## Exclusive SmartScout Coupon Code (May 2025): BLOGA25
