@@ -8,7 +8,7 @@ Right now, you can grab 25% OFF SmartScout for 3 months with our exclusive coupo
 
 SmartScout helps thousands of Amazon sellers discover profitable products, analyze competitors, and find brands ready to work with them. And now, with our exclusive SmartScout discount code **BLOGA25**, you can join them for much less.
 
-[👉 Click here to activate your SmartScout discount](https://partners.smartscout.com/?fpr=affinco)
+[![Click here to activate your SmartScout discount](https://res.cloudinary.com/drzqec0oi/image/upload/v1747051045/Click_here_to_activate_your_SmartScout_discount_xhxdcu.png)](https://partners.smartscout.com/?fpr=affinco)
 
 Let's dive into how you can save big with this SmartScout coupon in 2025!
 
@@ -170,4 +170,4 @@ Just remember to use our partner link and enter the **BLOGA25** promo code at ch
 
 [![SmartScout Discount Coupon 4](https://res.cloudinary.com/drzqec0oi/image/upload/v1747050421/SmartScout_Discount_Coupon_4_dpuzyb.jpg)](https://partners.smartscout.com/?fpr=affinco)
 
-[👉 Activate Your SmartScout Discount Here](https://partners.smartscout.com/?fpr=affinco)
+[![Activate Your SmartScout Discount Here](https://res.cloudinary.com/drzqec0oi/image/upload/v1747051045/Activate_Your_SmartScout_Discount_Here_ttowgx.png)](https://partners.smartscout.com/?fpr=affinco)
